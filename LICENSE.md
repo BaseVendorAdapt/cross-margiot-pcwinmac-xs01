@@ -1,4 +1,4 @@
-# 
+# Sécurisé cross-margin trading bot préréglages pour Mac OS | Mis à jour cross-margin trading bot préréglages pour PC Windows. Avec gestion de l'effet de levier et contrôle du glissement — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
